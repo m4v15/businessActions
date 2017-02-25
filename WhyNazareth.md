@@ -6,3 +6,4 @@
 2. Broad concerns about being a foreigner in Nazareth/Israel.
 3. Not sure if the course is intended for you, or someone like you.
 4. Unsure if the course is different to the one in London.
+5. Want to know why FAC have set up a course in Nazareth.
