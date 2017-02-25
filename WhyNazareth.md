@@ -16,8 +16,8 @@
 
   We ask that people make their own travel arrangements to Nazareth before the course begins, but have some helpful suggestions:
 
-    -Previous cohorts have all flown out from London on the same flight, which they arranged through our gitter channel beforehand. Making traveling to and through Israel much more comfortable and much less stressful.
+  - Previous cohorts have all flown out from London on the same flight, which they arranged through our gitter channel beforehand. Making traveling to and through Israel much more comfortable and much less stressful.
 
-    -We find arriving a few days before the course starts to be ideal to get to know your mentors, fellow students, and new home for the next 3 months (or more...)
+  - We find arriving a few days before the course starts to be ideal to get to know your mentors, fellow students, and new home for the next 3 months (or more...)
 
-    -(Insert part about whether to stay for 3 or more months)
+  - (Insert part about whether to stay for 3 or more months)
