@@ -21,3 +21,5 @@
   - We find arriving a few days before the course starts to be ideal to get to know your mentors, fellow students, and new home for the next 3 months (or more...)
 
   - (Insert part about whether to stay for 3 or more months)
+
+  #TO DO WEEK 2
